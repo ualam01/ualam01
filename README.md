@@ -10,4 +10,8 @@ Get to know me! :
 - ⚡ Fun fact: I've always been intrigued with website design, or any design in general!
 
 
+  "Nothing is impossible, the word itself says I'M POSSIBLE!"
+  -Audrey Hepburn
+
+
 
